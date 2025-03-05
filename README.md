@@ -2,7 +2,7 @@
 
 Title:
 Lenten Victories: A Jamaican Family's Journey of Evangelism
-
+![](./book-cover2.jpg)
 
 Table of Contents
 
